@@ -28,3 +28,7 @@
 * 1/4 cup yogurt
 * 1 tsp ginger garlic paste
 * 1/2 tsp dried fenugreek leaves
+
+# garnish
+
+* cilantro
