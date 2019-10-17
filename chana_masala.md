@@ -12,7 +12,7 @@
 # tempering
 
 * 2 tbsp ghee
-* 3 1/2 tbsp coriander powder
+* 3 1/2 tsp coriander powder
 * 3/4 tsp ginger powder
 * 3/4 tsp kashmiri chili powder
 * optional 2 tsp pomegranate seed powder
