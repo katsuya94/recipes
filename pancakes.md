@@ -1,4 +1,4 @@
-* 1 cup milk
+* 1 1/4 cup milk
 * 1 egg
 * 2 tbsp oil
 * 220 g AP flour
