@@ -15,6 +15,8 @@
 * 3-5 bay leaves
 * tea bag full of black peppercorns
 * 1 head of garlic cloves
+* salt to taste
+* vinegar to taste
 
 # Toppings
 
