@@ -1,6 +1,6 @@
 # Roux
 
-* 1/2 tsp cumin seeds
+* 1/2 tsp caraway seeds
 * 1 tbsp oil
 * 2 tbsp gram flour
 
