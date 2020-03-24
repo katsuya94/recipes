@@ -3,7 +3,7 @@
 * 40g bread flour
 * 200g water
 
-heat and stir in nonstick pan
+heat and stir in nonstick pan (out: ~204g)
 refrigerate 6 hr and keep at room temp 1 hr before use
 
 # Dough
