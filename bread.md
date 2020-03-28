@@ -20,13 +20,15 @@ Whisk
 * 50g egg
 * Tangzhong
 
-Knead
+Preheat the wet ingredients to keep the dough at around 85-90.
+
+Mix from the center of the bowl with a spatula, slowly incorporation more dry ingredients and adding more wet ingredients. Knead.
 
 * 50g unsalted butter
 
 Knead until it pulls away from bowl
 
-Proof 40 minutes - 1hr
+Proof 40 minutes - 1hr 
 
 Shape
 
@@ -34,4 +36,4 @@ Proof 30 minutes
 
 Brush with egg and milk mixture
 
-355 25 minutes
+355 25 minutes (longer next time)
