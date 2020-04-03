@@ -5,7 +5,7 @@
 * 3g baking soda
 * 9g salt
 * 1 stick (113g) brown butter
-* 70g white sugar
+* 75g white sugar
 * 65g brown sugar
 * 5g vanilla extract
 * 6g espresso powder, ground
