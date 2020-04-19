@@ -1,39 +1,39 @@
 # Tangzhong
 
-* 40g bread flour
-* 200g water
+* 20g bread flour
+* 100g milk
 
 heat and stir in nonstick pan (out: ~204g)
 refrigerate 6 hr and keep at room temp 1 hr before use
 
 # Dough
 
-* 580g bread flour
-* 60g sugar
-* 12g salt
-* 10g dry yeast
-* 10g dry milk
+* 300g bread flour
+* 30g sugar
+* 7g salt
+* 8g dry yeast
+* 7g dry milk
 
 Whisk
 
-* 260g milk
-* 50g egg
+* 130g milk
+* 25g egg
 * Tangzhong
 
 Preheat the wet ingredients to keep the dough at around 85-90.
 
 Mix from the center of the bowl with a spatula, slowly incorporation more dry ingredients and adding more wet ingredients. Knead.
 
-* 50g unsalted butter
+* 25g unsalted butter
 
 Knead until it pulls away from bowl
 
-Proof 40 minutes - 1hr 
+Proof 1hr - 1 1/2hr
 
 Shape
 
-Proof 30 minutes
+Proof another hr+ (rise all the way in pullman)
 
-Brush with egg and milk mixture
+Brush with egg and milk mixture (if not pullman)
 
-355 25 minutes (longer next time)
+400 30 minutes (longer next time)
