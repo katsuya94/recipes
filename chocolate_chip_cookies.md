@@ -8,7 +8,7 @@
 * 75g white sugar
 * 65g brown sugar
 * 5g vanilla extract
-* 6g espresso powder, ground
+* 4g instant coffee, ground or ?g espresso powder
 * 1 large egg
 * 75g semisweet chocolate chips
 
@@ -20,6 +20,6 @@
 * cream sugars, chilled brown butter, with vanilla and espresso powder
 * beat in egg, add dry ingredients in batches
 * fold in chocolate chips
-* shape cookies with ice cream scoop
+* shape cookies with ice cream scoop (45g each)
 * chill for 1 hour
-* bake at 375 for at least 12 minutes
+* bake at 375 for at least 14 minutes
