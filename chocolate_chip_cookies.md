@@ -3,7 +3,7 @@
 * 99g bread flour
 * 66g AP flour
 * 3g baking soda
-* 9g salt
+* 7g salt
 * 1 stick (113g) brown butter
 * 75g white sugar
 * 65g brown sugar
