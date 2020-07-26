@@ -1,6 +1,6 @@
 * 273g AP Flour
 * 39g cornmeal
-* 5g salt
+* 7g salt
 * 8g sugar
 * 5g yeast
 * 195g water
