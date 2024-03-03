@@ -3,12 +3,12 @@
 * 99g bread flour
 * 66g AP flour
 * 3g baking soda
-* 7g salt
+* 6g salt
 * 1 stick (113g) brown butter
 * 75g white sugar
 * 65g brown sugar
 * 5g vanilla extract
-* 4g instant coffee, ground or ?g espresso powder
+* 3g instant coffee, ground
 * 1 large egg
 * 75g semisweet chocolate chips
 
@@ -22,4 +22,4 @@
 * fold in chocolate chips
 * shape cookies with ice cream scoop (45g each)
 * chill for 1 hour
-* bake at 375 for at least 14 minutes
+* bake at 375 for 17 minutes
